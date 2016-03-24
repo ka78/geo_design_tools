@@ -1,1 +1,1 @@
-## Kirk's skills
+## Kirk's skills, there are many
